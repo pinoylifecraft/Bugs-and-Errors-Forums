@@ -1,6 +1,6 @@
-# 🔰Pinoy LifeCraft Suggestions Forum📖
+# 🔰Pinoy LifeCraft Bugs and Errors Forum📖
 
-Hello, Nice to see your looking at our Pinoy LifeCraft Suggestions Forum! We really appreciate that your helping or you have concern.
+Hello, Nice to see your looking at our Pinoy LifeCraft Bug and Errors Forum! We really appreciate that your helping or you have concern.
 
 # 🔰Pinoy LifeCraft
 
